@@ -1,1 +1,1 @@
-# i'm too lazy to create a website :Dd
+# i'm too lazy to create a website :D
